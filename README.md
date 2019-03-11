@@ -2,6 +2,7 @@
 
 ### Location
 **[Aha! Children's Museum](http://www.aha4kids.org/)**
+
 1708 River Valley Cir S, Lancaster, OH 43130
 
 ### Date
